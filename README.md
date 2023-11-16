@@ -1,1 +1,1 @@
-# rsschool-cv
+https://AleshaTRD.github.io/rsschool-cv/cv
